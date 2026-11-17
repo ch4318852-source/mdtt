@@ -36,7 +36,7 @@ https://telegram.me/madoutoutiao01
 
 💼 商务合作 | Business Cooperation
 商务合作请联系：
-https://official.1fff8x-t1t1.cyou/?channel=HDXY001
+https://t.me/cggf91_66
 
 🔁 最新地址获取方式（推荐）
 How to Get the Latest Address (Recommended)
